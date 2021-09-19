@@ -8,6 +8,8 @@
 作品：The Boyfriend Mandate <br>
 作者：River Jaymes <br>
 评分：4.3/5 <br>
+<br>
+<br>
 
 ## 剧情：
 上一部The Backup Boyfriend里，Alec的好友/公益诊所合伙人/前男友Tyler总是一副潇洒沉静的样子，然而十年前，他在大学里却是一个腼腆随和，举止尴尬的小男生。Tyler四岁时被单亲的妓女生母抛弃在超市里，生母骗他要去给他买披萨，然后就一去不回头。被收养后变得十分内向，他在大学里是数学竞赛队队员，而他的室友就是橄榄球四分位Memphis. 
